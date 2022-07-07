@@ -21,22 +21,22 @@
 ## 🎓 Feedback 
 
 Aspect hyper important du travail, hyper important pour moi (en donner comme en recevoir). C'est le truc qui me motive le plus je pense.
-On peut tout dire et c'est important de le dire tant que c'est bienveillant et que des solutions/actions sont proposées
+On peut tout dire et c'est important de le dire tant que c'est **bienveillant** et que des solutions/actions sont proposées
 
 ## 🧑🏽‍🏫 Style de management
 
 ### Participer
 
-J'ai besoin de travailler le moins possible dans mon coin et de collaborer le plus possible. Ca me motive ++ 
+J'ai besoin de travailler le moins possible dans mon coin et de collaborer le plus possible. Ca me **motive** ++ 
 
 ## 🚫 Ne jamais faire ... avec moi
 
-J'aime pas me faire ghoster (captain obvious), je prefère de loin un truc genre "pas dispo là, on se capte dans x temps"
+J'aime pas me faire **ghoster** (captain obvious), je prefère de loin un truc genre "pas dispo là, on se capte dans x temps"
 
 ## 🤷‍♀️ Mon trait de caractère le plus problématique est...
 
-Je procrastine beaucoup quand je bloque sur quelque chose, j'ai du mal à demander de l'aide sur un sujet
+Je **procrastine** beaucoup quand je bloque sur quelque chose, j'ai du mal à demander de l'aide sur un sujet
 
 ## 🧘 Le trait de caractère le plus important pour moi 
 
-- La bienveillance +++++
+La **bienveillance** +++++
